@@ -1,5 +1,5 @@
 ## from the hand
-
+interdisciplinary artist based in new york city
 <!--
 **cooperdelamain/cooperdelamain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
